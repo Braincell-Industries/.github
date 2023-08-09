@@ -9,4 +9,4 @@ You'll probably find nothing of use here, this organization is mostly for privat
 > marni_
 
 **Zoro's Discord**
-> defeatedzorov2
+> defeatedzorov2 or defeatedzoro
